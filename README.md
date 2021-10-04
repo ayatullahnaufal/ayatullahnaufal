@@ -25,11 +25,11 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on UI/UX Design
 - 🌱 I’m currently learning UX Researcher
 - 👯 I’m looking to collaborate on UX Researcher
-- 🤔 I’m looking for help with dribble.com
+- 🤔 I’m looking for help with dribbble.com
 - 💬 Ask me about Anything
 - 📫 How to reach me: Ayatullah
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am half finnish
+- ⚡ Fun fact: Keep moving forward �🚀
 
 <b> My Github Statistic </b>
   <br />
