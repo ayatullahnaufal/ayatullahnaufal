@@ -1,4 +1,4 @@
-### Hi, I'm Ayatullah Naufal, here is What I'm Working On! 👋
+### Hi, I'm Ayatullah Naufal. Here is What I'm Working On! 👋
 
 <a href="https://www.instagram.com/ayatullahnfl/">
   <img align="left" alt="Ayatullahnaufal's Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />
