@@ -29,7 +29,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about Anything
 - 📫 How to reach me: Ayatullah
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Keep moving forward 🚀
+- ⚡ Keep moving forward 🚀
 
 <b> My Github Statistic </b>
   <br />
